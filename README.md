@@ -1,1 +1,0 @@
-# Total-VMs-Deployed-and-Growth-Trend
